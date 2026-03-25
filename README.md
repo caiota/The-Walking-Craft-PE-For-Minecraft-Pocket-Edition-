@@ -11,3 +11,34 @@ esse arquivo de 2015 foi recuperado de um canal do youtube, de um video de mais 
 O mod era instalado usando Pocket Launcher Pro que usava JAVA para rodar os mods no Minecraft Pocket Edition (hoje Bedrock edition) nas versoes 0.75 alpha até 1.20 antes do Notch vender a Mojang para a Microsoft
 
 
+# Meus sinceros agradecimentos á pessoas incriveis que testavam o mod na epoca, isso ta no Ajuda B).html
+
+### Pitchula Gamer
+
+### Victor Luiz
+
+### Alex Junior
+
+### Ryan Santtos
+
+### Maryana Caetano
+
+### Daniel Ribeiro
+
+### Luiz Henrique
+
+### Melaine Craft
+
+### Vinicius Moura
+
+### Jhonatan Silva Nascimento
+
+### Rezende PE
+
+### Feromonas Luiz
+
+### Cleverson Oliveira
+
+### Tatiel Barros
+
+# E a outras centenas de pessoas que divulgaram o mod na época e jogaram também como Desno365, NandaaPlay e alguns gringos ai que não lembro o nome kkkkkkkk 
